@@ -1,1 +1,0 @@
-# zarinpal_clone
